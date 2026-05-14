@@ -1,4 +1,4 @@
-# 
+# new Adobe Audition for macOS Script | version-history + echo-removal offers the most advanced Adobe Audition for macOS script, with version-history and echo-removal. Ideal for
 
 
 
